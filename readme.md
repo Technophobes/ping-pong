@@ -1,9 +1,11 @@
-Joe is wierdly 
+Joe is wierdly cheerful since the funeral.
 
-On my hovercraft
+On my hovercraft are flying bees, and there's plenty of honey.
 
-By the nuclear power station
+By the nuclear power station west of Esteros, pure solitude.
 
 Over the hill
 
 My hovercraft is full of eels
+
+Over the hill yonder I see a moose.
