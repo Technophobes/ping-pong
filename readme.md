@@ -9,3 +9,5 @@ Over the hill
 My hovercraft is full of eels
 
 Over the hill yonder I see a moose.
+
+In west philidelphia born and raised - in the playground is where I spent most of my days.
