@@ -1,7 +1,7 @@
-Joe is
+Joe is wierdly 
 
-On my
+On my hovercraft
 
-By the 
+By the nuclear power station
 
-Over the 
+Over the hill
